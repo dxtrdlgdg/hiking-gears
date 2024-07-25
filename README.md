@@ -42,8 +42,11 @@
 
 ## Sleep System
 ### Sleeping bag
+[Viajero CDO - WINNER OUTFITTERS Mummy Sleeping Bag](https://shopee.ph/WINNER-OUTFITTERS-Mummy-Sleeping-Bag-i.95308948.19409254811?xptdk=d618f1ef-6c6e-4153-9205-9b6a0a972522)
 ### Inflate Pillow
+[Decathlon - Inflatable trekking pillow MT500](https://www.decathlon.ph/p/inflatable-trekking-pillow-mt500-forclaz-8772596.html)
 ### Sleeping Mattres
+[Lagalag - SLEEPING MATS 40"X 23" RED](https://shopee.ph/LAGALAG-SLEEPING-MATS-40-X-23-RED-i.90296472.1501403743)
 ## Trekking Shoes
 ## Trekking Gloves
 ## Headlamp
