@@ -55,13 +55,16 @@ Don't forget these additional essentials for a safe and comfortable hiking exper
 [To be updated with links and descriptions]
 
 ### Trekking Gloves
-[To be updated with links and descriptions]
+- **[Naturehike outdoor sport winter warm Soft Anti-slip Touch screen Hiking Trekking Cycling Driving Grip Gloves Five Fingers Gloves](https://www.lazada.com.ph/products/i3479110630-s17898457688.html?urlFlag=true&mp=1&tradePath=omItm&tradeOrderId=883308563552660&tradeOrderLineId=883308563652660&spm=spm%3Da2o42.order_details.item_title.1)**
 
 ### Headlamp
 [To be updated with links and descriptions]
 
+### Sleeping bag liner
+- **[Naturehike outdoor camping sleeping bag liner hotel travel sheet mummy sack washable comfortable lightweight 128g (not include sleeping bag)](https://www.lazada.com.ph/products/i4500681749-s25725308590.html?urlFlag=true&mp=1&tradePath=omItm&tradeOrderId=883308563552660&tradeOrderLineId=883308563752660&spm=spm%3Da2o42.order_details.item_title.1)**
+
 ### Trekking Pole
-[To be updated with links and descriptions]
+- **[Naturehike ST06 Ultralight Carbon Trekking Poles Telescopic Carbon Fiber Canes Outdoor Hiking Climbing Equipment 1 Piece](https://www.lazada.com.ph/products/i4463553655-s25370152831.html?urlFlag=true&mp=1&tradePath=omItm&tradeOrderId=883308563552660&tradeOrderLineId=883308563852660&spm=spm%3Da2o42.order_details.item_title.1)**
 
 ### Accessories
 [To be updated with links and descriptions]
