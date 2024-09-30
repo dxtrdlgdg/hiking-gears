@@ -52,13 +52,13 @@ Get a good night's sleep in the wilderness with these essentials:
 Don't forget these additional essentials for a safe and comfortable hiking experience:
 
 ### Trekking Shoes
-[To be updated with links and descriptions]
+- **[Men’s Hiking Boots - NH500 Mid Leather WP](https://www.decathlon.ph/p/men-s-hiking-boots-nh500-mid-leather-wp-quechua-8668913.html?indexName=prod_pim_v2_index&queryID=cdb5c7f9599caaf7f632a5f771ff3d7b)**
 
 ### Trekking Gloves
 - **[Naturehike outdoor sport winter warm Soft Anti-slip Touch screen Hiking Trekking Cycling Driving Grip Gloves Five Fingers Gloves](https://www.lazada.com.ph/products/i3479110630-s17898457688.html?urlFlag=true&mp=1&tradePath=omItm&tradeOrderId=883308563552660&tradeOrderLineId=883308563652660&spm=spm%3Da2o42.order_details.item_title.1)**
 
 ### Headlamp
-[To be updated with links and descriptions]
+- **[Rechargeable Head Torch - 300 lumen - HL500 USB V3 - black](https://www.decathlon.ph/p/rechargeable-head-torch-300-lumen-hl500-usb-v3-black-forclaz-8883095.html?indexName=prod_pim_v2_index&queryID=6099afdbb7e9901da93970a3f662ced0)**
 
 ### Sleeping bag liner
 - **[Naturehike outdoor camping sleeping bag liner hotel travel sheet mummy sack washable comfortable lightweight 128g (not include sleeping bag)](https://www.lazada.com.ph/products/i4500681749-s25725308590.html?urlFlag=true&mp=1&tradePath=omItm&tradeOrderId=883308563552660&tradeOrderLineId=883308563752660&spm=spm%3Da2o42.order_details.item_title.1)**
