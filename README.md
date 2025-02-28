@@ -44,9 +44,11 @@ Get a good night's sleep in the wilderness with these essentials:
 
 ### Inflatable Pillow
 - **[Decathlon - Inflatable Trekking Pillow MT500](https://www.decathlon.ph/p/inflatable-trekking-pillow-mt500-forclaz-8772596.html)**
+- **[Naturehike Mobile 3D Comfortable Silent Foam Pillow Camping Trip Portable Easy-to-Store Inflatable Pillow](https://www.lazada.com.ph/products/i2063353182-s9167047849.html?urlFlag=true&mp=1&tradePath=omItm&tradeOrderId=959205263752660&tradeOrderLineId=959205263952660&spm=spm%3Da2o42.order_details.item_title.1)**
 
 ### Sleeping Mattress
 - **[Lagalag - SLEEPING MATS 40"X 23" RED](https://shopee.ph/LAGALAG-SLEEPING-MATS-40-X-23-RED-i.90296472.1501403743)**
+- **[Naturehike Thicken Folding Egg Nest Moisture-proof Mat Outdoor Camping Tent Sleeping Mat Wild Moisture-proof Mat Thicken 2.5cm](https://www.lazada.com.ph/products/i2283464297-s10308003911.html?urlFlag=true&mp=1&tradePath=omItm&tradeOrderId=959205263752660&tradeOrderLineId=959205263852660&spm=spm%3Da2o42.order_details.item_title.1)**
 
 ## Additional Gear
 Don't forget these additional essentials for a safe and comfortable hiking experience:
@@ -68,6 +70,9 @@ Don't forget these additional essentials for a safe and comfortable hiking exper
 
 ### Accessories
 [To be updated with links and descriptions]
+
+### Camping Cup
+- **[Corrosion-resistant Camping Cup Camping Cup Ultra-light Stainless Steel Camping Mug with Lid Bpa Free Travel Friendly 350ml Water Cup for Outdoor Adventures](https://www.lazada.com.ph/products/i4378558049-s24580631271.html?urlFlag=true&mp=1&tradePath=omItm&tradeOrderId=969348138352660&tradeOrderLineId=969348138452660&spm=spm%3Da2o42.order_details.item_title.1)**
 
 ---
 
